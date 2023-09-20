@@ -1,0 +1,2 @@
+# Jeki
+Oʻzim uchun 
